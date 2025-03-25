@@ -1,1 +1,1 @@
-*future tech
+* future tech
